@@ -14,7 +14,7 @@ C'est une entreprise active depuis maintenant 24 ans. Basés à Moidieu-Détourb
 La passion pour l'agriculture et l'engagement envers des pratiques durables sont au cœur de l'activité. 
 Les fromages de chèvres de toutes sortes sont au rendez-vous. La production accorde une grande importance à la qualité des produits. 
 
-**- Volaille : **
+**- Volaille :**
 L'entreprise a été fondée il y a 24 ans, l'exploitation agricole à Eyzin-Pinet (38780) se consacre à une agriculture responsable et durable. Avec une équipe de 1 à 2 salariés, nous cultivons avec passion des produits de qualité, respectueux de notre terroir et du bien-être animal. 
 la volaille de qualité est au rendez-vous ! Du poulet, de la dinde et du chapons vous attendent au magasin.
 
