@@ -29,3 +29,5 @@ Nous vous invitons à nous rendre visite dans notre magasin, chaleureux et accue
 ​
 
 Bienvenue dans notre univers gustatif ! 
+
+<a href="https://www.larondedesfermes.fr/qui-sommes-nous">Site internet</a> 
