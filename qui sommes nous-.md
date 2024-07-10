@@ -1,6 +1,6 @@
 ---
 title: "Qui sommes nous?"
-order: 4
+order: 2
 in_menu: true
 ---
 <h1> Magasin de producteurs ! </h1>
