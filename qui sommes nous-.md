@@ -1,5 +1,5 @@
 ---
-title: "Historique"
+title: "Qui sommes nous?"
 order: 4
 in_menu: true
 ---
